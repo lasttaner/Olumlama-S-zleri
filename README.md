@@ -1,0 +1,1 @@
+# Olumlama-S-zleri
